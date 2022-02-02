@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @junenuj14
 - 👀 I’m interested in fun things
-- 🌱 I’m currently learning how to convince my boss I'm working
+- 🌱 I’m currently learning blender
 - 💞️ I’m looking to collaborate on fun things
 - 📫 How to reach me in a car or on foot, i wouldn't recommend trying to land a helicopter here
 
